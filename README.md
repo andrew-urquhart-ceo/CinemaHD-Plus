@@ -3,6 +3,7 @@ Experience nonstop entertainment with the Cinema HD app, your trusted gateway to
 
 **CinemaHDPlus.com** is the official website for the **Cinema HD App**, a leading platform that provides guides, updates, and safe download links for the latest **Cinema HD APK** versions.  
 Our mission is to deliver a clean, fast, and trustworthy source for users who want to stream movies and TV shows using **Cinema HD on Firestick, Android, iOS, or PC**.
+![cinemahdplus-logo-light-1](https://github.com/user-attachments/assets/1d56d627-c093-4e02-861f-9bdee2252357)
 
 ---
 
